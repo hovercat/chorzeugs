@@ -25,7 +25,7 @@ Um noch etwas mehr Bass und Klang reinzubringen, können wir noch unseren Kehlko
 
 Videos zum Throat Kick anzuschauen:
 - [Throat Kick Beatbox Tutorial - Fredy Beats](https://www.youtube.com/shorts/HurF46T7A88) &lt;- YT Short
-- [Throat Kick Tutorial | oZealous](https://www.youtube.com/watch?v=URJOqKSLXPU)
+- [Throat Kick Tutorial von oZealous](https://www.youtube.com/watch?v=URJOqKSLXPU)
 
 
 ### Und nun?!
