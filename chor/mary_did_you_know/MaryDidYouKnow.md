@@ -1,8 +1,8 @@
 # Mary Did You Know
 
 - SATBB Version:
-https://www.youtube.com/watch?v=tcN7e5RpcLw
-- Pentatonix Version: https://www.youtube.com/watch?v=ifCWN5pJGIE
+[https://www.youtube.com/watch?v=tcN7e5RpcLw](https://www.youtube.com/watch?v=tcN7e5RpcLw)
+- Pentatonix Version: [https://www.youtube.com/watch?v=ifCWN5pJGIE](https://www.youtube.com/watch?v=ifCWN5pJGIE)
 
 
 ## Beatbox Motifs von Bariton
